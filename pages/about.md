@@ -34,3 +34,6 @@ Works Cited
 Dubinsky, K. (1999). The second greatest disappointment: honeymooning and tourism at Niagara Falls. Retrieved from https://hdl-handle-net.proxy.library.brocku.ca/2027/heb.06230.
 
 History of Niagara Falls Daredevils - Henry Bellini. (n.d.). Niagara Falls Info. Retrieved November 29, 2021, from https://www.niagarafallsinfo.com/niagara-falls-history/niagara-falls-tourism-history/daredevils-of-niagara-falls/henry-bellini/
+
+Brock University Digital Repository, https://dr.library.brocku.ca/browse?value=web%2Barchives&type=subject. 
+
